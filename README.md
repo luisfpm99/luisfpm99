@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @luisfpm99
-- 👀 I’m interested in Physics
+- 👀 I’m a Bsc. in Physics and Msc. Nanomaterials
 - 🌱 I’m currently learning everything XD
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
